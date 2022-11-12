@@ -5,13 +5,13 @@
 Jestem Jacob, pochodzę z polski  🇵🇱
 
 Interesuje się: fotografią, astronomią, programowaniem,
-Grafiką
+Grafiką. Zaczołem programować w 2020 roku.
+
 
 Prowadzę Projekt UniverseDeveloperApp 
 
 w którym jetem
 Developerem, menadźerem i fotografem 
-
 
 
 Zapraszam na moje social media:
@@ -25,6 +25,14 @@ Zapraszam na moje social media:
 **Więcej o mnie:**
 
 * https://bio.link/universek3
+
+**Kontakt**
+
+* Napisz do mnie na email
+universett0@gmail.com
+
+* Napisz do studia na email
+universestudio03@gmail.com
 
 **Projekt:**
 
