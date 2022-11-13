@@ -26,6 +26,7 @@ Zapraszam na moje social media:
 
 * https://bio.link/universek3
 
+* https://universeblogpl03.wixsite.com/universepanel/about-9
 **Kontakt**
 
 * Napisz do mnie na email
